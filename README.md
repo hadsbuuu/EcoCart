@@ -7,3 +7,4 @@ Key Highlights
 Shop products that are eco-certified and plastic-free.
 Get personalized recommendations to reduce waste and adopt green habits.
 Fast, secure, and seamless checkout process with real-time carbon impact tracking.
+Explore more projects at https://theminecrft.com/
